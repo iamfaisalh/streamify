@@ -1,3 +1,3 @@
 # Coming Soon
 
-<img src="https://github.com/user-attachments/assets/d7f682bd-04cf-42d0-8bab-4e4f1fe1968d">
+<img src="https://github.com/user-attachments/assets/c3ace77a-06b4-4d09-83fc-df07aac5486d">
